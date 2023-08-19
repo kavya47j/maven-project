@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore and Mandya
+Hello, Welcome to great leaders from Mandya
